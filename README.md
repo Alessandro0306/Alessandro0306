@@ -9,5 +9,7 @@ meu nome e Alessandro Aparecido Rodrigues
 - ### Você pode entrar em contato comigo 📬
 
 - 00001089740190sp@al.educacao.sp.gov.br
+
 - 00001089740190sp@al.educacao.sp.gov.br
 
+![](https://media1.tenor.com/m/ZCxwVKNGulcAAAAd/carlos-sumar%C3%A9.gif)
